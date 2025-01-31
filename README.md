@@ -1,0 +1,4 @@
+
+NAME: John Joseph 
+MARTIC NO: U23MTH1020
+DEPT: MATHS 
